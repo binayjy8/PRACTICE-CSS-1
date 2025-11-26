@@ -1,1 +1,1 @@
-author- Binay bhusan mohanta is the main motivattio
+author- Binay bhusan mohanta is the main motivatti
